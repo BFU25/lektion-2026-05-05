@@ -12,7 +12,7 @@ Blockly: https://blockly.games/
 
 [Förmiddag](https://zocom-my.sharepoint.com/:v:/g/personal/christoffer_wallenberg_zocom_se/IQAmdxW5uSwVRL7L2na8OlThAUz0qZ5yCJD2Zh8iI5MDars?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=vtFugY)
 
-Eftermiddag:
+[Eftermiddag](https://zocom-my.sharepoint.com/:v:/g/personal/christoffer_wallenberg_zocom_se/IQAqkrZs44hkRbmVZ_1PwgXiAS-JPmQg4-D0D_ic6M8FkfQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=lYfgwx)
 
 ## Artiklar
 
